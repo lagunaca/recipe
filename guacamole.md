@@ -7,3 +7,6 @@ Ingredients
 2 garlic cloves, minced.
 1 lime, juiced.
 1/2 tsp sea salt.
+
+HOW TO EAT
+with spoon
